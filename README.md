@@ -1,2 +1,2 @@
 # 24k-0020
-It is for Programming Fundamentals lab
+My name is Syed Yahya Shamim. This assignment is for Programming Fundamentals lab and i hope to go with the flow and acheive my dream of getting an artificial intelligence degree.
