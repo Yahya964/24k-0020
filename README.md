@@ -4,3 +4,11 @@ My hobbies are playing football
 I also love to play video games
 ![PC](https://github.com/user-attachments/assets/49b717fc-7634-433f-90e6-72f967949be9)
 
+
+
+
+
+
+
+![PC](https://github.com/user-attachments/assets/cce0e3fc-744e-4bef-aef2-41e2d831b8f6)
+
